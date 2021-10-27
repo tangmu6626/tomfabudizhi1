@@ -7,4 +7,4 @@
 ### 📧 邮箱联系方式: avtomdizhi@gmail.com （发送任意内容获取最新地址）
 ### Telegram频道，欢迎关注！HttpS://t.me/tom914_com
 ### 谨记永久发布页哦，二师兄都记住了呢！Https://TMYS.VIP
-### 汤姆APP最新下载地址为： https://www.9996tom.com/
+### 汤姆APP最新下载地址为： https://www.9999tom.com/
